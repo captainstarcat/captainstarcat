@@ -1,7 +1,5 @@
 Hi guys, I'm StarCat!
-CEO/Chairman of StarCat Media Group, LLC, Est. 2020
-
-instagram @capt_starcat and @smg_us
+CEO/Chairman of StarCat Digital Media, LLC, Est. 2020
 
 https://www.starcatmedia.net
 
